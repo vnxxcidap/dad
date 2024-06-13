@@ -1,1 +1,1 @@
-# dad
+# tinggal request aja mau yang mana pak bos ntr saya buatin. saya kerja 1 bulan ini jika ketidak percayaan pak ketua saya tidak kerja. bisa pantau saya pake anydesk atau team viewer atau saya ke kantor pak ketuaa
